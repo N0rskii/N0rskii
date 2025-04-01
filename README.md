@@ -5,7 +5,7 @@
 -  How to reach me: Best through here if at all possible :P
 -  Pronouns: she/her
 -  Fun fact: I'm currently a sophomore in college, and I do commissioned digital art
--  Currently working on: A Crow cosplay duo with my significant other
+-  Currently working on: Finding Destiny 2 Character model STLs
 
 <!---
 N0rskii/N0rskii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
