@@ -4,7 +4,7 @@
 -  I’m looking to collaborate on Very Basic Things (inexperienced thus far)
 -  How to reach me: Best through here if at all possible :P
 -  Pronouns: she/her
--  Fun fact: I'm currently a rising junior in college, and I do commissioned digital art
+-  Fun fact: I'm currently a junior in college, and I do commissioned digital art
 -  Currently working on: Finding Destiny 2 Exo Playable Character model STLs to modify for 3d prining and referencing.
 -  3D model and photo reference hoarder
 
